@@ -1,1 +1,1 @@
-dobro pozhalovat v zhopy
+dobro pozhalovat v petrovsk
